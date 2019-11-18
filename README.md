@@ -1,1 +1,1 @@
-# meccanoidg15ks9
+# math 24 sticker goal=100
